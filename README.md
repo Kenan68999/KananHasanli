@@ -1,2 +1,0 @@
-# KananHasanli
-Portfolio
